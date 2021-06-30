@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @setarong, a designer &　creator
+- 👋 Hi, I’m @setarong, a designer & creator.
 
 
 - 👀 I’m interested in writing and reading.
-- 🌱 I’m currently learning C# and web design
+- 🌱 I’m currently learning C# and web design.
 
 
 ### connect
