@@ -9,7 +9,7 @@
 
 > [Behance](https://www.behance.net/qian_rong) | Portfolio<br>
 > [AriStation](https://www.artstation.com/qian_rong) | Portfolio : more illustration Work<br>
-> [vimeo](https://vimeo.rong_lai) | Video & Animation
+> [vimeo](https://vimeo.com.rong_lai) | Video & Animation
 
 
 <!---
