@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @setarong, a designer & creator.
+- 👋 Hi, I’m @setarong, a Motion Designer & creator.
 
 
 - 👀 I’m interested in writing and reading.
